@@ -1,0 +1,1 @@
+- [ChatGPT Basic Tutorials](https://www.youtube.com/playlist?list=PLAJQLVGPvMQxR-iUU_aNBk-CFnmlMlDIg)
